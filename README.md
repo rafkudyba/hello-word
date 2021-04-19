@@ -8,4 +8,9 @@ zmiany i zmiany
 kolejne zmiany 
 
 
+zmianu
+zmiany i zmiany
+kolejne zmiany 
+
+i następne
 
