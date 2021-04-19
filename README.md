@@ -7,3 +7,5 @@ kolejne zmiany
 zmiany i zmiany
 kolejne zmiany 
 
+i następne
+
